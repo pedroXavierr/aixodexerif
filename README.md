@@ -1,2 +1,0 @@
-# aixodexerif
-ai sho theshefi
